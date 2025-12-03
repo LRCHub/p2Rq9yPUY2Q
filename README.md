@@ -1,0 +1,64 @@
+# 棗いつき – PRIMARY STAR
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+TO BE THE PRIMARY STAR
+TO BE THE PRIMARY STAR
+Uh yeah yeah yeah
+Get upはじまるNew age
+全てを塗り替えてTurning, Turning
+刺激的なStage 運命的なRage
+刻まれた It’s THE PRIMARY STAR
+伝播する衝動が Ah
+止まらないの Heartbeat加速させて
+進めDay by day 譲れないMy way
+So anyone can’t stop me
+ここで見せるわ
+Ooh… 孤独な夜も変わらない強さで
+Ooh… 輝け
+Cuz I wanna wanna be only your
+PRIMARY STAR
+ボルテージ上げて
+Dancing, Dancing now
+Cuz I wanna wanna be only your
+PRIMARY STAR
+胸を張って進むよ
+This is my way of life
+THE PRIMARY STAR
+This is my way of life
+Get ready for the next stage
+This is my way of life
+THE PRIMARY STAR
+Follow me
+キミとChange the world now
+堂々登場 目指すは圧倒的常勝
+Disだって上等 負け犬の常套句
+指図はさせない 私は私
+他の誰でもない Don’t bother me
+貫いて気高きPride Ah
+思い上がりだっていい
+Love me as I am, ya
+アップデートはStep by step
+ギブアップはNo way
+So anyone can’t stop me
+ここで見せるわ
+Ooh…
+昨日より今日好きになれる自分で
+Ooh… 輝け
+Cuz I wanna wanna be only your
+PRIMARY STAR
+ボルテージ上げて
+Dancing, Dancing now
+Cuz I wanna wanna be only your
+PRIMARY STAR
+胸を張って進むよ
+This is my way of life
+THE PRIMARY STAR
+This is my way of life
+Get ready for the next stage
+This is my way of life
+THE PRIMARY STAR
+Follow me
+キミとChange the world now
+```
